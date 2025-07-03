@@ -41,4 +41,4 @@
 📱 多端畅看 · 极速播放体验
 本平台全面支持手机、平板、电脑端播放，自动适配高清分辨率，不卡顿、不闪退，真正做到随时随地免费观看日本AV资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/junlin20270703/junlin20270703 ）</span>
